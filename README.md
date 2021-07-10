@@ -1,7 +1,7 @@
 # 初遇最新下载地址（2021年7月9日更新）
 
 ### 点击以下链接进入下载页：
-### [ymgl.xyz](http://ymgl.xyz)<br> 
+### [iqay.xyz](http://iqay.xyz)<br> 
 ### 主播版下载地址 [762b.xyz](http://762b.xyz)
 （观众下载无法使用）
 
@@ -11,8 +11,7 @@ k6tu.xyz<br>
 8slt.xyz<br>    
 
 备用主播版下载地址如下<br>
-762b.xyz<br>
-tbkl.xyz<br>    
+762b.xyz<br>    
 
 # 初遇回家页简介
 
